@@ -11,3 +11,6 @@ https://guykawasaki.com/books/the-art-of-the-start/
 8. Management team
 9. Financial projections and key metrics
 10. Current status, accomplishments to date, timeline, and use of funds 
+
+
+![](https://raw.githubusercontent.com/kevin11h/Guy-Kawaski-s-10-startup-slides/master/IMAG1425.jpg)

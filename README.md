@@ -1,4 +1,11 @@
 # Guy-Kawaski-s-10-startup-slides
+
+# slide show
+https://www.slideshare.net/huer1278ft/the-art-of-the-start-37633
+
+https://www.slideshare.net/GuyKawasaki
+
+## book
 https://guykawasaki.com/books/the-art-of-the-start/
 
 1. Title slide

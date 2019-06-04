@@ -44,7 +44,7 @@ https://www.youtube.com/watch?v=eudADPfTWiE
 9. Un Re-Solved Questions?  Ask the audience?  Ask the angels?
 10.  ?  What else?  Any other secret tricks ?
 
-Add demo, videos, visualizations, tables, lists, road maps, bubble market cap size charts, growth charts, product tables, feature matrix,  first five features functionalities #f4, sources, references, links
+Add demo, videos, visualizations, tables, lists, road maps, tree maps, tables, Perceptual Maps,  bubble market cap size charts, growth charts, product tables, feature matrix,  first five (yrs) financial figures features functionalities #f4, sources, references, links
 
 + Slideshare - Passive Linkedin powerpoint asset (not the best)
 https://www.slideshare.net/

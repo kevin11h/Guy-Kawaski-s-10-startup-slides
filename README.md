@@ -1,3 +1,5 @@
+# https://guykawasaki.com/the-only-10-slides-you-need-in-your-pitch/
+
 # Guy-Kawaski-s-10-startup-slides
 
 # slide show
@@ -52,3 +54,5 @@ https://www.slideshare.net/
 https://en.wikipedia.org/wiki/Back-of-the-envelope_calculation
 
 https://www.slideshare.net/stsanto/the-back-of-the-napkin-dan-roam
+
+https://guykawasaki.com/the-only-10-slides-you-need-in-your-pitch/

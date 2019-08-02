@@ -56,3 +56,5 @@ https://en.wikipedia.org/wiki/Back-of-the-envelope_calculation
 https://www.slideshare.net/stsanto/the-back-of-the-napkin-dan-roam
 
 https://guykawasaki.com/the-only-10-slides-you-need-in-your-pitch/
+
+https://guykawasaki.com/the_top_ten_lie-3/

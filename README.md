@@ -62,3 +62,6 @@ https://guykawasaki.com/the_top_ten_lie-3/
 https://guykawasaki.com/the_venture_cap/
 
 https://www.goodreads.com/review/list/93362833-kevin-hung?order=d&shelf=stanford-bus23-invest-book-club&sort=title&view=table
+
+
+https://www.amazon.com/APE-Author-Publisher-Entrepreneur-How-Publish-ebook/dp/B00AGFU5VS

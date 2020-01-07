@@ -21,6 +21,8 @@ https://guykawasaki.com/books/the-art-of-the-start/
 9. Financial projections and key metrics
 10. Current status, accomplishments to date, timeline, and use of funds 
 
+# blog podcast 
+https://guykawasaki.com/margaret-atwood-mirth-and-writing-magic-with-canadas-favorite-author/
 
 ![](https://raw.githubusercontent.com/kevin11h/Guy-Kawaski-s-10-startup-slides/master/IMAG1425.jpg)
 
@@ -399,3 +401,6 @@ You will find that defeating bozosity is more satisfying than accumulating trapp
 The greatest role that life can bestow upon you is to be a revolutionary
 
 # https://www.amazon.com/Rules-Revolutionaries-Organizing-Change-Everything/dp/1603587276
+
+# Podcast
+https://guykawasaki.com/margaret-atwood-mirth-and-writing-magic-with-canadas-favorite-author/

@@ -1,3 +1,6 @@
+# Podcast Episodes
+https://podcasts.apple.com/us/podcast/guy-kawasakis-remarkable-people/id1483081827
+
 # https://guykawasaki.com/the-only-10-slides-you-need-in-your-pitch/
 
 # Guy-Kawaski-s-10-startup-slides

@@ -411,3 +411,6 @@ https://guykawasaki.com/margaret-atwood-mirth-and-writing-magic-with-canadas-fav
 # NVidia
 ## https://medium.com/ai4allorg/ai4all-announces-funding-from-pivotal-ventures-and-jen-hsun-lori-huang-461105a8ad22
 ![](https://miro.medium.com/max/1000/1*twf8Unl5kgeBvAstwhqKqA.jpeg)
+
+# duck9.com/blog
+![](https://images-na.ssl-images-amazon.com/images/I/71UJ6+6LcKL._US230_.jpg)

@@ -407,3 +407,7 @@ The greatest role that life can bestow upon you is to be a revolutionary
 
 # Podcast
 https://guykawasaki.com/margaret-atwood-mirth-and-writing-magic-with-canadas-favorite-author/
+
+# NVidia
+## https://medium.com/ai4allorg/ai4all-announces-funding-from-pivotal-ventures-and-jen-hsun-lori-huang-461105a8ad22
+![](https://miro.medium.com/max/1000/1*twf8Unl5kgeBvAstwhqKqA.jpeg)

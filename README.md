@@ -5,6 +5,8 @@
 
 # Guy-Kawaski-s-10-startup-slides
 
+![](https://image.slidesharecdn.com/theonly10slideyouneedinapitchfromtheartofthestart2-150304115510-conversion-gate01/95/the-only-10-slides-you-need-in-your-pitch-deck-from-the-art-of-the-start-20-1-1024.jpg?cb=1426674723)
+
 # slide show
 https://www.slideshare.net/huer1278ft/the-art-of-the-start-37633
 
@@ -414,3 +416,4 @@ https://guykawasaki.com/margaret-atwood-mirth-and-writing-magic-with-canadas-fav
 
 # duck9.com/blog
 ![](https://images-na.ssl-images-amazon.com/images/I/71UJ6+6LcKL._US230_.jpg)
+

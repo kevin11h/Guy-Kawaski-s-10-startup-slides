@@ -1,4 +1,7 @@
 # Podcast Episodes
+# Guy "Never Too Late To Learn"
+48 Years Old https://cs-cz.facebook.com/guy/videos/its-never-too-late-to-try-new-things/294655854775639/
+
 # https://podcasts.apple.com/us/podcast/guy-kawasakis-remarkable-people/id1483081827
 
 # https://guykawasaki.com/the-only-10-slides-you-need-in-your-pitch/

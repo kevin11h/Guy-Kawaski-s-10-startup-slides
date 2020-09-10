@@ -9,7 +9,7 @@
 # Guy-Kawaski-s-10-startup-slides
 
 
-
+# TIMOTHY CHANG MAYFIELD WISDOM  https://github.com/kevin11h/Timothy-Chang-Mayfield-Wisdom-Slides
 # slide show
 https://www.slideshare.net/huer1278ft/the-art-of-the-start-37633
 

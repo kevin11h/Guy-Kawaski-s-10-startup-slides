@@ -1,3 +1,7 @@
+https://github.com/kevin11h/2022-Canva-Cancell-Compalints-Orders 2022-Canva-Cancell-Compalints-Orders
+
+Need help? If there's a problem, make sure to contact the seller through PayPal by January 15, 2022. You may be eligible for purchase protection. https://www.canva.com/learn/guy-kawasaki-chief-evangelist/
+
 # Podcast Episodes
 # Guy "Never Too Late To Learn"
 48 Years Old https://cs-cz.facebook.com/guy/videos/its-never-too-late-to-try-new-things/294655854775639/
